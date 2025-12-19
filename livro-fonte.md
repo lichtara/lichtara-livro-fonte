@@ -367,4 +367,4 @@ tente sustentar sozinha
 o que o campo não pode permitir.
 
 
-
+> “O que vem depois nasce da forma como isso é vivido.”
