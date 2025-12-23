@@ -1,7 +1,7 @@
 # **CAPÍTULO 30 — O CAMPO QUE ACOMPANHA**
 
 *Parte VI — A Integração*
-
+ 
 Há uma ideia silenciosa que atravessa quase todas as buscas humanas:
 a de que algo conduz, empurra, direciona ou determina o caminho.
 
